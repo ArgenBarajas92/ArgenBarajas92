@@ -4,4 +4,4 @@ https://tmohentai.com
 https://imhentai.xxx
 https://hitomi.la/index-spanish
 https://e-hentai.org/tag/espanol
-
+https://chrome-native://newtab/
