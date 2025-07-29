@@ -1,3 +1,4 @@
+arkanus 
 https://mihon.app
 https://tachiyomi.org
 https://tmohentai.com 
