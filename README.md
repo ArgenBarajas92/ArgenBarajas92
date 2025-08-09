@@ -1,2 +1,9 @@
 @ArgenBarajas92
-
+https://chrome-native://newtab
+https://mihon.app
+https://tachiyomi.org
+https://tmohentai.com 
+https://imhentai.xxx
+https://hitomi.la/index-spanish
+https://e-hentai.org/tag/espanol
+https://Google.com
